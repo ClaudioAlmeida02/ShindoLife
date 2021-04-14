@@ -1,2 +1,0 @@
-# ShindoLife
-Shindolife
